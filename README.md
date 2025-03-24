@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on 
 - 📫 How to reach me emily.eb.seo@icloud.com 
 - 😄 Pronouns: SHE/HER
-- ⚡ Fun fact: My middle name 'Eunbeol' means SilverStar in Korean
+- ⚡ Fun fact: My middle name  means SilverStar in Korean
 
 <!---
 emilyebseo/emilyebseo is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
